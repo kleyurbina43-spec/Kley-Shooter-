@@ -1,2 +1,0 @@
-# Kley-Shooter-
-Tukituki
